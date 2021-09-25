@@ -6,4 +6,4 @@ I change it in future and add something more to this game 👌
 I know i can make description better.
 ## Free? For what?
 I just making this repository because I just want to do something good.
-+ Free
+For free because why for money? 💸
